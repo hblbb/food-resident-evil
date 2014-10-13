@@ -9,6 +9,7 @@ Under Collection
 2. [食安懶人包](http://e-info.org.tw/taxonomy/term/41260)
 3. [乳品含抗生素、塑化劑](http://news.ltn.com.tw/news/life/paper/732026)
 4. [大統生機開發股份有限公司](http://www.buzzhand.com/post_169113.html)
+5. [「工業廢油」質詢影片曝光](http://www.ettoday.net/news/20141013/412540.htm?from=fb_et_news)
 
 抵制產品
 ---------
