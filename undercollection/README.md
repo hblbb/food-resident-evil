@@ -15,6 +15,17 @@ Under Collection
 ---------
 1. [頂新集團抵制懶人包](http://micnet.blogspot.com/2014/10/boycott-ting-hsin-group.html)
 2. [台灣之星](http://goo.gl/et60oY)
-3. [頂新相關企業產品-1](http://goo.gl/Ceiy6w)
-4. [頂新相關企業產品-2](http://goo.gl/EmFqQJ)
-5. [頂新相關企業產品-3](http://goo.gl/nJuaYg)
+3. [自己健康自己救　網友推「頂新產品懶人包」](http://www.appledaily.com.tw/realtimenews/article/life/20141009/484912)
+4. 頂新相關企業產品-1 ![](http://f.share.photo.xuite.net/berniemax/1fec59f/19264232/1052516023_l.jpg)
+5. 頂新相關企業產品-2 ![](http://f.share.photo.xuite.net/berniemax/1fec5b1/19264232/1052517577_l.jpg)
+6. 頂新相關企業產品-3 ![](http://f.share.photo.xuite.net/berniemax/1fec5d9/19264232/1052515313_l.jpg)
+
+頂新集團
+---------
+1. [魏家企業體系](https://www.ptt.cc/bbs/Gossiping/M.1413257093.A.991.html)
+
+G0V零時政府
+------------
+1. [抵制大幫手 - Operation Decent](https://g0v.hackpad.com/-Operation-Decent-tf4txwcUKV8)
+2. [抵制小幫手 app](https://g0v.hackpad.com/-app-gmVxuYAk5R9)
+
